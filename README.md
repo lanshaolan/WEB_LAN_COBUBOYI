@@ -1,2 +1,2 @@
 # WEB_LAN_COBUBOYI
-渴不渴以歐
+渴不渴以
